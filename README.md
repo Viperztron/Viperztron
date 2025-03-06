@@ -1,4 +1,5 @@
 🐕‍🦺
+
 Hi person behind the screen! U can call me Viper/Sam. I'm 19 yo btw :P 
 
 -Stupid Brazilian 
